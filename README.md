@@ -6,5 +6,4 @@ Scored 805 points scored at the TOEIC test
 
 Looking for an internship anywhere in the world.
 
-You can reach me:
-By mail: alexandre.akdeniz@free.fr
+You can reach me by mail: "alexandre.akdeniz@free.fr".
